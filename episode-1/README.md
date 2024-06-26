@@ -1,1 +1,0 @@
-# Namaste React by Zaid 🚀
